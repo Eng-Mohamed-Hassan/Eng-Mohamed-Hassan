@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Eng-Mohamed-Hassan
+- I provide classification services for contracting and engineering consulting companies in Abu Dhabi, completing the entire transaction from start to finish
+- I HAVE EXPIERNCE IN MEPS AND TAMM ANG SMARTHUB
+-I HAVE EXPIERNCE IN QC/QS
+-
